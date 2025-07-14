@@ -1,2 +1,2 @@
-# Electrovita-
-The mapping of future living 
+find jobs
+use the technology 
